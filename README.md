@@ -16,5 +16,5 @@
 ---
 
 📫 **Vamos nos conectar?**
-* **LinkedIn:** [Seu LinkedIn aqui](www.linkedin.com/in/vytor-hugo-silva-santos-27a319428)
-* **GitHub:** [Seu Perfil](https://github.com/vytorhugosilvasantos7-netizen)
+* **LinkedIn:** ([www.linkedin.com/in/vytor-hugo-silva-santos-27a319428](https://www.linkedin.com/in/vytor-hugo-silva-santos-27a319428?utm_source=share_via&utm_content=profile&utm_medium=member_ios))
+* **GitHub:** (https://github.com/vytorhugosilvasantos7-netizen)
